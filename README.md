@@ -78,3 +78,6 @@ KMFDM
 <p align="center">
 hold on github is acting up !!! >_<
 </p>
+
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=metaldirector)
