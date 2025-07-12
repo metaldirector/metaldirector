@@ -111,5 +111,18 @@ MSI
 <img width="400" height="119" alt="blinkiesCafe-zN" src="https://github.com/user-attachments/assets/1c013272-8a63-4dca-a131-62f1070b9e03" />
 <img width="400" height="119" alt="blinkiesCafe-ZJ" src="https://github.com/user-attachments/assets/4889ff06-e072-4543-8b31-9935ea5016cd" />
 </p>
+<br/>
+<br/>
+<p align="center">
+SOAD
+</p>
+<p align="center">
+<img width="200" height="57" alt="cac6493a57997f90f564083ff5548e48cb7bdfa9" src="https://github.com/user-attachments/assets/676ae2c3-f815-4c58-8d9f-f39b7b7f8179" />
+<img width="200" height="57" alt="4d82eeb6f6518e8a3405fe78c14096f45a537eb4" src="https://github.com/user-attachments/assets/30ccd276-5a8b-484d-83cb-d36c910cd4b6" />
+<img width="200" height="57" alt="408973b02a16d9206ffd81487c75d81f8f405e27" src="https://github.com/user-attachments/assets/c33957b9-0410-4beb-baee-db1f6f792e60" />
+<img width="200" height="57" alt="52736da7" src="https://github.com/user-attachments/assets/b2a45a98-195c-4a0d-a7e6-46637ae39837" />
+<img width="200" height="57" alt="8af875f5ee600531bba9614f905f960b95c28626" src="https://github.com/user-attachments/assets/b8f9c375-d446-478b-a42f-a9e7aafcf681" /><br/>
+<img width="99" height="57" alt="382509301-f7034ee6-b330-4400-ba35-ccbfe4e0d87b" src="https://github.com/user-attachments/assets/13f74783-eb7a-4a91-834e-4fa891a6a1d1" />
+</p>
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=metaldirector)
