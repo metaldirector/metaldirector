@@ -1,2 +1,3 @@
-under construction 
-Will mostly contain blinkies and stamps . cheers .
+- under construction 
+- Will mostly contain blinkies and stamps . cheers .
+- I spent all night collecting over 400 stamps and blinkies , I am comletely exhausted for today .
