@@ -124,5 +124,23 @@ SOAD
 <img width="200" height="57" alt="8af875f5ee600531bba9614f905f960b95c28626" src="https://github.com/user-attachments/assets/b8f9c375-d446-478b-a42f-a9e7aafcf681" /><br/>
 <img width="99" height="57" alt="382509301-f7034ee6-b330-4400-ba35-ccbfe4e0d87b" src="https://github.com/user-attachments/assets/13f74783-eb7a-4a91-834e-4fa891a6a1d1" />
 </p>
+<br/>
+<br/>
+<p align="center">
+Lemon Demon
+</p>
+<p align="center">
+<img width="200" height="57" alt="tumblr_pc0a5nM9Qs1us63pto1_250" src="https://github.com/user-attachments/assets/14d45c99-4c9d-406e-84cb-02b123b572f6" />
+<img width="200" height="57" alt="tumblr_phrrrsayCg1xpxfk5o6_r1_250" src="https://github.com/user-attachments/assets/4ea12c5c-9a45-4538-b8d9-9b4411188b5e" />
+<img width="200" height="57" alt="ynu9ykut" src="https://github.com/user-attachments/assets/e3a99a35-fb23-409a-aed5-8145ef69e94c" />
+<img width="200" height="57" alt="tumblr_66121cb686e1aee23165269c79a79c15_53b5877d_250" src="https://github.com/user-attachments/assets/c488a1e3-85e0-4102-9a3f-9f1efc93cf0a" />
+<img width="200" height="57" alt="tumblr_5c9d49c897a467d02befc42972e301c3_348b16ae_400" src="https://github.com/user-attachments/assets/e3f5ea4a-88b9-4756-a41b-0238a484c53d" />
+<img width="200" height="57" alt="tumblr_0456366df51b651b4c4d0f0cadd365d3_7b3c8cc1_250" src="https://github.com/user-attachments/assets/ea06d416-a298-4916-a576-69f0a0ea723c" />
+<img width="200" height="57" alt="tumblr_39bbeaf55d9ad01ebf7f5eebe756f3ea_6119d43f_250" src="https://github.com/user-attachments/assets/f556b2e6-0888-49ac-8008-e406b85563fd" /><br/>
+<img width="99" height="57" alt="tumblr_fe2cafb0ce91aacd4793d080126bfce7_51d2400f_100" src="https://github.com/user-attachments/assets/6bf753d3-3a63-429f-b0ec-58b305de1328" />
+<img width="99" height="57" alt="tumblr_cf011740ab7b5a4a89cf96fde5316d55_3fe6d9d6_100" src="https://github.com/user-attachments/assets/fe3edd7c-9698-4598-afc3-2721ef1aa261" />
+<img width="99" height="57" alt="tumblr_557355cedeb79a61dbeb30e739248971_c059b46d_100" src="https://github.com/user-attachments/assets/9718f728-96c0-411e-9fae-149e48a8f0e6" />
+<img width="99" height="57" alt="tumblr_ea90152f078e4aee37e6d824fc8065ee_362aa87a_100" src="https://github.com/user-attachments/assets/d3fe465a-3afe-4dae-abc4-fce999c79000" />
+</p>
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=metaldirector)
