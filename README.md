@@ -142,5 +142,43 @@ Lemon Demon
 <img width="99" height="57" alt="tumblr_557355cedeb79a61dbeb30e739248971_c059b46d_100" src="https://github.com/user-attachments/assets/9718f728-96c0-411e-9fae-149e48a8f0e6" />
 <img width="99" height="57" alt="tumblr_ea90152f078e4aee37e6d824fc8065ee_362aa87a_100" src="https://github.com/user-attachments/assets/d3fe465a-3afe-4dae-abc4-fce999c79000" />
 </p>
+<br/>
+<br/>
+<p align="center">
+Gorillaz
+</p>
+<p align="center">
+<img width="97" height="57" alt="tumblr_inline_os633dAj9d1u5rvwj_500" src="https://github.com/user-attachments/assets/17337b4a-33f1-4e63-9c18-6245e1ad5acd" />
+<img width="97" height="57" alt="382510128-0cb5bbfa-c5c0-4c77-abee-5d5892a4278a" src="https://github.com/user-attachments/assets/6ef3e143-9553-4207-851d-7a6765b20b7f" />
+<img width="97" height="57" alt="382510129-d4d6846f-728b-4d98-a973-3c867740b920" src="https://github.com/user-attachments/assets/f1d4c7a6-e477-41e4-8591-eaeb8068a208" /><br/>
+<img width="200" height="57" alt="f94f16f3c87376ac8b965c04bd9870fc70110e1d" src="https://github.com/user-attachments/assets/fd7b146a-8817-4579-8a0f-6e9d8ba8fc75" />
+</p>
+<br/>
+<br/>
+<p align="center">
+Rob Zombie
+</p>
+<p align="center">
+<img width="97" height="57" alt="tumblr_ae8abea342c8f91da674a232fd6eee7c_826b4931_100" src="https://github.com/user-attachments/assets/46d23dc8-0d54-43f5-8a95-2862f8a973bb" />
+<img width="97" height="57" alt="5cc4fe4a" src="https://github.com/user-attachments/assets/a5c4982b-101f-4fae-9810-3f290f487972" /><br/>
+<img width="200" height="57" alt="dh4buu8-67a4638c-f1bd-4156-bdd4-d7a4a3829376" src="https://github.com/user-attachments/assets/fe7a018b-22d3-45f9-960b-08e7b57398eb" />
+<img width="200" height="57" alt="tumblr_924f3f23915a6c9dc51d6a52494a49ae_c9286d4d_400" src="https://github.com/user-attachments/assets/fd7b2ef5-e973-410c-b393-d8cfea472b10" />
+<img width="200" height="57" alt="tumblr_476bd6d16015a5f1517add78998c7393_81726241_250" src="https://github.com/user-attachments/assets/1f571607-33ca-4d6a-88eb-c9ba4d72a276" />
+</p>
+<br/>
+<br/>
+<p align="center">
+Metalocalypse
+</p>
+<p align="center">
+  <img width="97" height="57" alt="382509237-0faec74f-10e5-4638-9762-f9483baef51f" src="https://github.com/user-attachments/assets/e6c5def0-141b-4c49-bca5-18e195f9ff74" />
+  <img width="97" height="57" alt="382509236-1cc4edc3-b585-49a0-bf04-367a25171d95" src="https://github.com/user-attachments/assets/c247937b-7d3f-4ff9-adde-bdea5c3768a9" /><br/>
+<img width="200" height="57" alt="tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250" src="https://github.com/user-attachments/assets/8dbdb91b-5a3b-4f94-bb87-2d9cbc2548a1" />
+<img width="200" height="57" alt="tumblr_88dc71c2208ace639fc768a3bb30d93b_298ac117_250" src="https://github.com/user-attachments/assets/0b1075f4-8ceb-40a7-9a63-d660300369b5" />
+<img width="200" height="57" alt="tumblr_050fc581de0661fbe1c4cd7371f2cf20_8608a1e0_250" src="https://github.com/user-attachments/assets/e0f97f43-190a-4107-b8e2-1fb0ac16760b" />
+<img width="200" height="57" alt="tumblr_2de9dc54ee2a7b42045937ed728318d7_1bb4976e_250" src="https://github.com/user-attachments/assets/54fc2c5b-bb8d-48f0-83fa-7a335edd8dc7" />
+<img width="200" height="57" alt="382509316-a10766ea-f605-4fc7-8d92-0c95772fdf43" src="https://github.com/user-attachments/assets/f868c6c5-a2dc-4001-8b76-84100650168e" />
+</p>
+
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=metaldirector)
