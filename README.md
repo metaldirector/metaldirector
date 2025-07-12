@@ -179,6 +179,66 @@ Metalocalypse
 <img width="200" height="57" alt="tumblr_2de9dc54ee2a7b42045937ed728318d7_1bb4976e_250" src="https://github.com/user-attachments/assets/54fc2c5b-bb8d-48f0-83fa-7a335edd8dc7" />
 <img width="200" height="57" alt="382509316-a10766ea-f605-4fc7-8d92-0c95772fdf43" src="https://github.com/user-attachments/assets/f868c6c5-a2dc-4001-8b76-84100650168e" />
 </p>
+<br/>
+<br/>
+<p align="center">
+Other bands / artists
+</p>
+<p align="center">
+  <img width="99" height="59" alt="7b104d575c98f2533aee42ba56131d047570c85e" src="https://github.com/user-attachments/assets/d60f3d37-ff8d-43e1-b98a-cd4fb457a693" /><br/>
+<img width="99" height="56" alt="9f178cb7" src="https://github.com/user-attachments/assets/72a46f64-f543-4bde-ac59-49f54020a7b6" />
+<img width="99" height="59" alt="546f1d48" src="https://github.com/user-attachments/assets/e8e72e57-89dc-4262-b98d-94be6a60cf25" />
+<img width="99" height="59" alt="10e7f9d5" src="https://github.com/user-attachments/assets/a332431f-5db7-496b-b424-400c53c6d236" /><br/>
+<img width="99" height="99" alt="tumblr_573c13564fc1da5a43706f46f48626e8_2ff56f24_250" src="https://github.com/user-attachments/assets/40de3ba4-b162-4871-a5f7-f09e3494291a" /><br/>
+<img width="200" height="59" alt="d1e91c3712a9e1c2f7895b467fee788723abcdb7" src="https://github.com/user-attachments/assets/5d0e5bb1-cd5d-45f4-b8e2-fd1ef84da5f2" />
+<img width="200" height="59" alt="d5866d9027c3ac5c8a6708fe9745e350a708b35f" src="https://github.com/user-attachments/assets/318665fb-f700-4059-9b6a-4744b09d12ba" />
+<img width="200" height="59" alt="284abd628a4b344363bf31e9c25e51b36d3bb88a" src="https://github.com/user-attachments/assets/631d1fd8-3f5c-43e3-8911-61f436759bd3" />
+<img width="200" height="59" alt="3b9f0f240e8605f5ddb495c484db954667dd5ce3" src="https://github.com/user-attachments/assets/8f7fe209-c5d1-4d03-94c2-a8136aef24e4" />
+<img width="200" height="59" alt="tumblr_42950d7158cc3ef80ad66f2fb142e0c1_90e96097_400" src="https://github.com/user-attachments/assets/1e62993e-d982-4f0d-84e9-b07a5f907e40" />
+<img width="200" height="59" alt="y9x7yb7u" src="https://github.com/user-attachments/assets/c4ee726c-934a-4f0b-b98f-ca9efc366e1a" />
+<img width="200" height="59" alt="2222836mzf2qv1pus" src="https://github.com/user-attachments/assets/d7717013-98af-4f1f-8ee8-9cba21a56337" />
+<img width="200" height="59" alt="553dc426dfb92e8e4a598c2563d5e60e1531f65f" src="https://github.com/user-attachments/assets/a9fcd3f9-082f-4b66-96a1-af4fdc1ab80e" />
+<img width="200" height="59" alt="weird-al" src="https://github.com/user-attachments/assets/caf8427e-7c32-481b-8755-3dcd3fb3b55b" />
+<img width="200" height="59" alt="stauber" src="https://github.com/user-attachments/assets/267bec14-6ba1-4f66-8580-e86b78d56b85" />
+<img width="200" height="59" alt="c2ff50d51e538624c6bcbc3ae0c8099fe084dcd2" src="https://github.com/user-attachments/assets/67034ea0-680e-4b9d-a081-2b719e22a473" />
+<img width="200" height="59" alt="tumblr_inline_rgkndbRQz61twb9g1_500" src="https://github.com/user-attachments/assets/030b8802-adb0-47a4-837c-b413ae0e7529" />
+<img width="200" height="59" alt="84c80e82df8765468fb707c95a8dc78ba8839991" src="https://github.com/user-attachments/assets/d7074608-8c43-4c60-bdf6-3b572861bc80" />
+<img width="200" height="59" alt="bff030001c68ee0687e2bb52cb4fd6bcf088dda6" src="https://github.com/user-attachments/assets/d4d501b0-5111-4856-b274-1cc4c60d1337" />
+<img width="200" height="59" alt="d5bc0072181d0039c005015ea212400ade64a778" src="https://github.com/user-attachments/assets/2b531246-2837-4201-82ae-5419466c961e" />
+<img width="200" height="59" alt="bc551d4c4bd8155c08b426d0312027a7d26fd27a" src="https://github.com/user-attachments/assets/7e3e5dfc-b89e-4cb4-a460-66ef06cd9dbe" />
+<img width="200" height="59" alt="1ea63fac89bc5ee971f322ef1adf59bf2b59189c" src="https://github.com/user-attachments/assets/6edc8d20-fd0e-4b98-9905-43c1686d003e" />
+<img width="200" height="59" alt="6efec1eaea10a75836bea7227a71bd415987db24" src="https://github.com/user-attachments/assets/1ff956a4-70e0-40b2-8aa3-2ae494d5690e" />
+<img width="200" height="59" alt="IMG-1219" src="https://github.com/user-attachments/assets/aadd35e8-c515-4236-b761-c326f8ac6c26" />
+<img width="200" height="59" alt="37f4a592" src="https://github.com/user-attachments/assets/7b5b3942-8e90-4e16-a4a2-5c385acace72" />
+<img width="200" height="59" alt="79ec7dd0" src="https://github.com/user-attachments/assets/5cdcbd64-702b-402f-99fa-945b7bb5bcd2" />
+<img width="200" height="59" alt="aed478a96369447cddf93d8d5248006ac22b36fd" src="https://github.com/user-attachments/assets/7e1389e7-ea2e-4a0d-837d-1f82d8f2fa4a" />
+</p>
+<br/>
+<br/>
+<p align="center">
+HATSUNE MIKU ?!
+</p>
+<p align="center">
+<img width="200" height="59" alt="6542ae6e" src="https://github.com/user-attachments/assets/32846327-3d8f-4b07-835d-894198b1c039" />
+<img width="200" height="59" alt="cf7282fc" src="https://github.com/user-attachments/assets/3ef97f2e-e684-417d-9fcf-5ff0cdca0b7a" />
+</p>
+<br/>
+<br/>
+<p align="center">
+Other music related
+</p>
+<p align="center">
+<img width="200" height="59" alt="techno" src="https://github.com/user-attachments/assets/8a3c006a-d204-4f7b-b566-bed67b1199e4" />
+<img width="200" height="59" alt="ab050536" src="https://github.com/user-attachments/assets/210dd073-0f0f-4181-b6d7-6cec89dce2ee" />
+<img width="200" height="59" alt="9722dd1b" src="https://github.com/user-attachments/assets/2156b68e-9e51-4baa-8a22-6210691adbac" />
+<img width="200" height="59" alt="tumblr_d1a71597bdb4ec6a738f432dd12a1f5e_c6ab349e_100" src="https://github.com/user-attachments/assets/ed143480-363a-42a7-86cc-39ef7f5be1c5" />
+<img width="200" height="59" alt="4cfafc9889d6efbc1b8a4fb6d2bed720693bf022" src="https://github.com/user-attachments/assets/6e88b3db-4c1a-436b-aa8a-75fbe27c9de5" />
+<img width="200" height="59" alt="a26" src="https://github.com/user-attachments/assets/c9e0b83d-aac9-44c8-8cf5-d2451fabfdb9" />
+<img width="200" height="59" alt="tumblr_3e810fdbea3ffcd05d70e2603f828e5c_e2a8fd62_250" src="https://github.com/user-attachments/assets/f6551961-e9be-4137-a644-1f011a552772" />
+<img width="200" height="59" alt="3765903mv1k0p2b57" src="https://github.com/user-attachments/assets/23d809cd-b1be-4870-919e-9632af569c2f" />
+<img width="200" height="59" alt="tumblr_40b3da4fa7afa58fc48984b1f6e606aa_19f57094_250" src="https://github.com/user-attachments/assets/be8423ee-1bfd-4d9a-ac20-f9d234efaa50" />
+<img width="200" height="59" alt="3767420sgamrw4mgm" src="https://github.com/user-attachments/assets/ab878e68-e602-497f-bdda-935b2d576c3a" />
 
+</p>
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=metaldirector)
