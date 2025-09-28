@@ -9,6 +9,13 @@
 <br/>
 <p align="center"><sub><a href="https://rentry.co/ywnwoah">rentry</a>  ⠀<a href="https://thedirector.atabook.org">secondary ata</a></sub></p>
 <p align="center"><sub><a href="https://guns.lol/lost_badge">guns.lol</a>  ⠀ <a href="https://github.com/Kriegermaniac-YWNdraws">main</a>   ⠀  <a href="https://github.com/jazzedpunk">silly billy</a></sub></p>
+<br/>
 
+<p align="center">
+<img width="200" height="200" alt="3dgifmaker11907" src="https://github.com/user-attachments/assets/4325948d-5518-4e18-9fb9-616df37ecd5f"/><br/>
+𝖓𝖔𝖜 𝖕𝖑𝖆𝖞𝖎𝖓𝖌: 𝕻𝖆𝖓𝖟𝖊𝖗𝖒𝖊𝖓𝖘𝖈𝖍 - 𝕬𝖓𝖉 𝕺𝖓𝖊<br/>
+  0:57 ━━━•──────────── 5:04  <br/>
+  ⇄  ◃◃   ⅠⅠ   ▹▹  ↻<br/>
+</p> 
 <br/>
 <p align="center"><sub><sub>credit to silly billy for the layout btw ...</sub></sub></p>
